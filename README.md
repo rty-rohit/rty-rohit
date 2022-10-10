@@ -1,4 +1,4 @@
-![image](https://tenor.com/view/bts-jungkook-shocked-cat-shocked-galaxy-gif-12358931)
+![image](https://media.tenor.com/8cxd_fYllxgAAAAC/bts-jungkook.gif)
 <!--
 **rty-rohit/rty-rohit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 Here are some ideas to get you started:
