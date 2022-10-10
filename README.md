@@ -1,8 +1,6 @@
-### Hi there 👋
-
+![image](https://tenor.com/view/bts-jungkook-shocked-cat-shocked-galaxy-gif-12358931)
 <!--
 **rty-rohit/rty-rohit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
